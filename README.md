@@ -2,7 +2,7 @@
 
 #### 在线游玩
 
-- http://feterpig77.top
+- https://feterpig77.top
   > 项目施工中，暂未开放，请耐心等待~
 
 #### 施工现场
